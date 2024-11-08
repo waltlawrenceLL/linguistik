@@ -1,1 +1,1 @@
-# linguistiknared
+# linguistik
